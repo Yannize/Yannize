@@ -1,6 +1,6 @@
 # Bienvenu !  
 
-### **Je m'appelle Yann, développeur en herbe !**🌱
+### Je m'appelle Yann, développeur en herbe ! 🌱
 
 Actuellement en pleine formation intensive de 6 mois dans l'école **O'clock** pour devenir un **développeur Fullstack JavaScript** 🧐⚡💻  
   
