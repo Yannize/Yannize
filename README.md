@@ -8,7 +8,7 @@ Actuellement en pleine formation intensive de 6 mois dans l'école **O'clock** p
 Par mail: yann.hirlemann@gmail.com  
 twitter : @YannH52661719  
 
-## Ecole <img src="https://actualitesjeuxvideo.fr/wp-content/uploads/2016/08/Oclock.jpg" width="100">  
+## Ecole
 
 A bientôt 👋😀
 
